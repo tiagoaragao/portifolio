@@ -1,7 +1,7 @@
-# portifolio
+# Portifolio
 Portifólio de Tiago Alexandre Soares Aragão
 
-![image](https://user-images.githubusercontent.com/15176309/133704946-352eee5f-0534-4479-b68d-7b35797aa26e.png)
+
 
 
 ![image](https://user-images.githubusercontent.com/15176309/133704981-0a4c4710-21da-4a69-b382-2484e828d99c.png)
