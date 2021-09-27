@@ -31,4 +31,12 @@ Portifólio de Tiago Alexandre Soares Aragão
 
 
 
+![image](https://user-images.githubusercontent.com/15176309/134981696-74ad6dc8-5227-4031-b574-8338ac70deb3.png)
+
+
+![image](https://user-images.githubusercontent.com/15176309/134981651-cfdb1c8e-2116-4cad-b01b-8ddb693ca124.png)
+
+
+
+
 
